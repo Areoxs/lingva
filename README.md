@@ -1,1 +1,1 @@
-# lingva
+training in make-up
